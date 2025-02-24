@@ -1,5 +1,5 @@
 ## Hi there 👋
-It's my 2025 New account. Spring cleanning in progress...
+It's my 2025 New account. Time for Spring cleaning...
 
 <!--
 **nelsonaisolutions/nelsonaisolutions** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
